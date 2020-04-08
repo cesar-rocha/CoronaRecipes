@@ -1,7 +1,10 @@
 # Carrot cake
 
-Preparation time: 15 minutes
-Baking time: 40 minutes
+**Preparation time**: 15 minutes
+
+**Baking time**: 40 minutes
+
+**From**: Cesar, adapted from Nina
 
 ## Ingredients
 
