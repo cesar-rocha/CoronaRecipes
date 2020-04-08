@@ -17,7 +17,7 @@
 
 ## Directions
 
-- Pre-heat the oven at 350&degF (180C);
+- Pre-heat the oven at 350&deg;F (180&deg;C);
 - Peel and chop the carrots, then blend carrots, eggs and oil;
 - In a large bowl, mix the flour, surgar and baking soda;
 - Add the blend to the bowl and stir the mix thoroughly;
