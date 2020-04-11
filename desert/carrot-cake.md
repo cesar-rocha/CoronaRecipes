@@ -4,7 +4,7 @@
 
 **Baking time**: 40 minutes
 
-**From**: Cesar, adapted from Nina
+**From**: Cesar, adapted from Vinicius Travalini
 
 ## Ingredients
 
