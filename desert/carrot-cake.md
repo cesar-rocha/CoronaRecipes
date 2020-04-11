@@ -4,7 +4,7 @@
 
 **Baking time**: 40 minutes
 
-**From**: @cesar-rocha, adapted from Vinicius Travalini
+**From**: Cesar, adapted from Vinicius Travalini
 
 ## Ingredients
 
