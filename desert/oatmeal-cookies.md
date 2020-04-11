@@ -5,7 +5,7 @@
 
 **Baking time**: 12 minutes
 
-**From**: Cesar, adapted Quaker Oats
+**From**: Cesar, adapted from Quaker Oats
 
 ## Ingredients
 
