@@ -6,6 +6,5 @@ welcome.
 
 Happy cooking!
 
-Cesar
-
+Quarantine cooks
 
