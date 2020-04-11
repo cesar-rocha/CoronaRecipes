@@ -21,6 +21,6 @@
 - Peel and chop the carrots, then blend carrots, eggs and oil;
 - In a large bowl, mix the flour, surgar and baking soda;
 - Add the blend to the bowl and stir the mix thoroughly;
-- Add the mix into a greases and floured cake pan;
+- Add the mix into a greased-and-floured cake pan;
 - Bake for 30-40 minutes.
 
